@@ -1,0 +1,1 @@
+# Tugas-UAS-Praktikum-Basis-Data-2-IF1-10118018
